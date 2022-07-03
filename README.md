@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there 👋 Follow me on Instagram @art_with_zi !! I'm new to this site and will need time to get to know things! 
+ 
 <!--
 **CreateWithZi/CreateWithZi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
